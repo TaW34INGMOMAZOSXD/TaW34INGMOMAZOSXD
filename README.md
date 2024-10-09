@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TaW34INGMOMAZOSXD
+- 👋 Hi, I’m @El-G-SuS
 - 👀 I’m interested in ...MEMS AND YOSHIS
 - 🌱 I’m currently learning ...PROGRAMMING and robotics
 - 💞️ I’m looking to collaborate on ...MY TEAM
